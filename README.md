@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @kunqian1127
-- 👀 I’m interested in finance
-- 🌱 I’m currently learning accounting
+- 👀 I’m interested in Accounting and Finance.
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me kqian@ualberta.ca
 
